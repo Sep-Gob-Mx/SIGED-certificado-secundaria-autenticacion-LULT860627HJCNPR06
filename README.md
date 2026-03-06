@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-LULT860627HJCNPR06
+LULT860627HJCNPR06
